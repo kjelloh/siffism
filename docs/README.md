@@ -2,7 +2,7 @@
 
 **Siffism** is an open philosophical framework grounded in a radical idea:
 
-> What if intelligent life in our universe was seeded by life from a previous universe?  
+> What if life in our universe was seeded by life from a previous universe?  
 > And what if we, in turn, could help seed life in the next?
 
 This project lives at the edge of cosmology, ethics, myth, and practice.  
