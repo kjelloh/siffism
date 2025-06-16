@@ -9,13 +9,13 @@ This project lives at the edge of cosmology, ethics, myth, and practice.
 It offers no dogma—only a question:
 
 **What happens if we act as if life in a previous universe wanted us to exist?  
-What happens if we appreciate that possibility—and choose to care for life now and in the next universe?**
+What happens if we appreciate that possibility—and choose to care for life in the next universe?**
 
 ---
 
 ## Pronunciation
 
-**Siffism** is pronounced *“siff-ism”*, like **“if”**, not “sife.”  
+**Siffism** is pronounced *“siff-ism”*, like **“if”**.  
 The name is rooted in the phrase **“as if”**—an invitation to act, explore, and imagine with intention.
 
 ---
